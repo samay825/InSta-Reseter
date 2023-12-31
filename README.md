@@ -1,4 +1,4 @@
-<h1 align="center">Instagram Reset Bypass<br>
+<h1 align="center">Instagram Reset Byp@ss<br>
 </h1>
 <img src="insta-reset.png" alt="Paris" class="center">
 * `📱 💀`<br />
